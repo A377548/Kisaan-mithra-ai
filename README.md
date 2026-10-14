@@ -1,1 +1,0 @@
-# Kisaan-mithra-ai
